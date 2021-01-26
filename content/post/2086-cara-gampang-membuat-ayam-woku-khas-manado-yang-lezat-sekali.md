@@ -1,0 +1,121 @@
+---
+description: "Cara Gampang Membuat Ayam Woku Khas Manado yang Lezat Sekali"
+title: "Cara Gampang Membuat Ayam Woku Khas Manado yang Lezat Sekali"
+slug: 2086-cara-gampang-membuat-ayam-woku-khas-manado-yang-lezat-sekali
+date: 2020-09-23T05:17:21.781Z
+image: https://img-global.cpcdn.com/recipes/ada5d2e4bc98ed98/751x532cq70/ayam-woku-khas-manado-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/ada5d2e4bc98ed98/751x532cq70/ayam-woku-khas-manado-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/ada5d2e4bc98ed98/751x532cq70/ayam-woku-khas-manado-foto-resep-utama.jpg
+author: Theresa Rice
+ratingvalue: 3.3
+reviewcount: 5
+recipeingredient:
+- "1 ekor ayam"
+- "1 buah tomat"
+- "3 batang daun bawang"
+- "1 lembar daun pandan"
+- "2 bungkus daun kemangi"
+- "3 lembar daun salam"
+- "2 batang sereh"
+- "sepotong lengkuas memarkan"
+- "5 lembar daun jeruk"
+- "secukupnya garam"
+- "secukupnya gula"
+- "secukupnya penyedap"
+- " jeruk nipis"
+- "secukupnya kecap"
+- " Bumbu Halus"
+- "6 siung bawang putih"
+- "10 siung bawang merah"
+- "12 buah cabe setan"
+- "10 buah cabe merah keriting"
+- "4 buah kemiri"
+- "sepotong kunyit"
+- "sepotong jahe"
+recipeinstructions:
+- "Potong ayam sesuai selera, namun jangan terlalu besar. Setelah dicuci, lumuri ayam dengan jeruk nipis dan garam lalu diamkan sejenak."
+- "Haluskan semua bumbu halus dengan food processor dan tambahkan air dan sedikit minyak."
+- "Iris daun bawang, sereh, daun jeruk dan daun pandan. Potong pula tomat dan petik daun kemangi."
+- "Goreng ayam yg telah dilumuri jeruk dan garam hingga setelah matang. (gunakan api besar dan minyak panas agar ayam garing diluar namun tidak kering di dalam dagingnya)"
+- "Panaskan minyak goreng, lalu tumis bumbu yg sudah dihaluskan dan masukkan daun salam, garam dan lengkuas yang telah dimemarkan. (tips apabila ketika menghaluskan bumbu terlalu banyak menambahkan air, maka tumis bumbu halus hingga pulen tidak hanya sekedar wangi agar bumbu tidak terasa mentah. Apabila hanya menambahkan air sedikit maka tumis sampai matang saja)"
+- "Bila bumbu sudah matang maka masukkan sereh, daun jeruk dan daun pandan yg telah di iris. Tumis hingga wangi, lalu masukkan air secukupnya untuk mematangkan ayam. Jangan lupa tambahkan garam, gula dan penyedap lalu koreksi rasa."
+- "Ketika air sudah mulai panas maka masukkan ayam yg telah digoreng setelah matang, kecilkan api dan biarkan bumbu meresap kedalam ayam."
+- "Saat air sudah mulai berkurang dan bumbu sudah meresap, tambahkan kecap sedikit dan masukkan daun bawang serta daun kemangi dan tomat."
+- "Masak hingga daun kemangi layu lalu ayam woku siap disantap. Kalau saya lebih suka ayam woku yg masih banyak kuahnya tp kalo kurang suka dapat dimasak hingga air dan bumbu meresap ke ayam."
+categories:
+- Resep
+tags:
+- ayam
+- woku
+- khas
+
+katakunci: ayam woku khas 
+nutrition: 186 calories
+recipecuisine: Indonesian
+preptime: "PT32M"
+cooktime: "PT55M"
+recipeyield: "2"
+recipecategory: Dinner
+
+---
+
+
+![Ayam Woku Khas Manado](https://img-global.cpcdn.com/recipes/ada5d2e4bc98ed98/751x532cq70/ayam-woku-khas-manado-foto-resep-utama.jpg)
+
+Lagi mencari ide resep ayam woku khas manado yang unik? Cara membuatnya memang susah-susah gampang. Jika salah mengolah maka hasilnya akan hambar dan bahkan tidak sedap. Padahal ayam woku khas manado yang enak seharusnya mempunyai aroma dan cita rasa yang mampu memancing selera kita.
+
+Banyak hal yang sedikit banyak mempengaruhi kualitas rasa dari ayam woku khas manado, mulai dari jenis bahan, selanjutnya pemilihan bahan segar, hingga cara membuat dan menghidangkannya. Tak perlu pusing kalau hendak menyiapkan ayam woku khas manado enak di rumah, karena asal sudah tahu triknya maka hidangan ini mampu menjadi sajian istimewa.
+
+Kali ini kembali aktifitas memasak, masakan harian. Kembali dengan bahan dasar ayam, saya mencoba memasak ayam kuah khas Manado, yaitu ayam WOKU. Resep Ayam Woku - Ayam woku adalah salah satu makanan khas asal Indonesia.
+
+
+Berikut ini ada beberapa tips dan trik praktis dalam mengolah ayam woku khas manado yang siap dikreasikan. Anda dapat membuat Ayam Woku Khas Manado memakai 22 bahan dan 9 langkah pembuatan. Berikut ini langkah-langkah untuk membuat hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang diperlukan untuk pembuatan Ayam Woku Khas Manado:
+
+1. Ambil 1 ekor ayam
+1. Siapkan 1 buah tomat
+1. Gunakan 3 batang daun bawang
+1. Ambil 1 lembar daun pandan
+1. Ambil 2 bungkus daun kemangi
+1. Siapkan 3 lembar daun salam
+1. Sediakan 2 batang sereh
+1. Sediakan sepotong lengkuas (memarkan)
+1. Siapkan 5 lembar daun jeruk
+1. Ambil secukupnya garam
+1. Ambil secukupnya gula
+1. Sediakan secukupnya penyedap
+1. Ambil  jeruk nipis
+1. Siapkan secukupnya kecap
+1. Siapkan  Bumbu Halus
+1. Ambil 6 siung bawang putih
+1. Gunakan 10 siung bawang merah
+1. Sediakan 12 buah cabe setan
+1. Sediakan 10 buah cabe merah keriting
+1. Siapkan 4 buah kemiri
+1. Gunakan sepotong kunyit
+1. Ambil sepotong jahe
+
+
+Sudah bukan rahasia lagi bahwa makanan khas Manado yang satu ini bercita rasa pedas dan sarat akan penggunaan. Bubur khas Manado ini berbeda dengan bubur ayam yang sudah beredar luas. Tinutuan hanya berisikan sayuran tanpa mengandung daging sehingga bisa dijadikan makanan pergaulan antarkelompok masyarakat di Manado. Ayam woku ini termasuk makanan khas Manado. 
+
+<!--inarticleads2-->
+
+##### Cara menyiapkan Ayam Woku Khas Manado:
+
+1. Potong ayam sesuai selera, namun jangan terlalu besar. Setelah dicuci, lumuri ayam dengan jeruk nipis dan garam lalu diamkan sejenak.
+1. Haluskan semua bumbu halus dengan food processor dan tambahkan air dan sedikit minyak.
+1. Iris daun bawang, sereh, daun jeruk dan daun pandan. Potong pula tomat dan petik daun kemangi.
+1. Goreng ayam yg telah dilumuri jeruk dan garam hingga setelah matang. (gunakan api besar dan minyak panas agar ayam garing diluar namun tidak kering di dalam dagingnya)
+1. Panaskan minyak goreng, lalu tumis bumbu yg sudah dihaluskan dan masukkan daun salam, garam dan lengkuas yang telah dimemarkan. (tips apabila ketika menghaluskan bumbu terlalu banyak menambahkan air, maka tumis bumbu halus hingga pulen tidak hanya sekedar wangi agar bumbu tidak terasa mentah. Apabila hanya menambahkan air sedikit maka tumis sampai matang saja)
+1. Bila bumbu sudah matang maka masukkan sereh, daun jeruk dan daun pandan yg telah di iris. Tumis hingga wangi, lalu masukkan air secukupnya untuk mematangkan ayam. Jangan lupa tambahkan garam, gula dan penyedap lalu koreksi rasa.
+1. Ketika air sudah mulai panas maka masukkan ayam yg telah digoreng setelah matang, kecilkan api dan biarkan bumbu meresap kedalam ayam.
+1. Saat air sudah mulai berkurang dan bumbu sudah meresap, tambahkan kecap sedikit dan masukkan daun bawang serta daun kemangi dan tomat.
+1. Masak hingga daun kemangi layu lalu ayam woku siap disantap. Kalau saya lebih suka ayam woku yg masih banyak kuahnya tp kalo kurang suka dapat dimasak hingga air dan bumbu meresap ke ayam.
+
+
+Masakan ini punya citarasa gurih, pedas, dan aroma yang wangi. Ayam woku terasa lebih nikmat jika disajikan dengan nasi hangat. Cara memasaknya pun terbilang sederhana lho. Hal ini lantaran Resep Ayam Woku Khas Manado memiliki citarasa gurih, pedas, dan aroma yang wangi. Terlebih lagi jika disajikan dengan nasi Meski kadang orang melihat terlalu banyak rempah yang dibutuhkan untuk membuat Resep Ayam Woku Khas Manado, namun sebenarnya cara. 
+
+Terima kasih telah membaca resep yang kami tampilkan di halaman ini. Besar harapan kami, olahan Ayam Woku Khas Manado yang mudah di atas dapat membantu Anda menyiapkan hidangan yang enak untuk keluarga/teman ataupun menjadi ide untuk berbisnis kuliner. Selamat mencoba!

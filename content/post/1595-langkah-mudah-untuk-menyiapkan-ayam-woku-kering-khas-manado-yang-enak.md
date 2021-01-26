@@ -1,0 +1,107 @@
+---
+description: "Langkah Mudah untuk Menyiapkan Ayam Woku Kering Khas Manado yang Enak"
+title: "Langkah Mudah untuk Menyiapkan Ayam Woku Kering Khas Manado yang Enak"
+slug: 1595-langkah-mudah-untuk-menyiapkan-ayam-woku-kering-khas-manado-yang-enak
+date: 2020-11-18T07:08:20.066Z
+image: https://img-global.cpcdn.com/recipes/d10ea6fa0e4e5d58/751x532cq70/ayam-woku-kering-khas-manado-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/d10ea6fa0e4e5d58/751x532cq70/ayam-woku-kering-khas-manado-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/d10ea6fa0e4e5d58/751x532cq70/ayam-woku-kering-khas-manado-foto-resep-utama.jpg
+author: John Ray
+ratingvalue: 4.2
+reviewcount: 15
+recipeingredient:
+- "1/2 kg Ayam"
+- "8 buah Kentang ukkecil"
+- "5 potong Tahu"
+- "5 siung Bawang putih"
+- "10 Bawang merah"
+- "35 buah cabe sesuai selera"
+- "4 buah kemiri"
+- "1 ruas jahe"
+- "2 ruas kunyit"
+- "3 buah tomat"
+- "3 batang serai"
+- "1 lembar daun pandan"
+- "5 lembar daun jeruk"
+- "1/4 lembar daun kunyit"
+- "Secukupnya daun kemangi"
+- "Secukupnya garam"
+- "1 sdt kaldu bubuk sya  royco ayam"
+- "Sedikit gula"
+- "Sedikit air  100ml"
+recipeinstructions:
+- "Potong ayam sesuai selera (sya rebus sedikit -+ 10menit), kentang &amp; tahu potong sesuai selera kemudian goreng."
+- "Haluskan bawang merah (sisakan 2siung utk di iris), bawang putih, cabe, jahe, kunyit, kemiri. Iris bawang merah &amp; tomat, bersihkan &amp; geprek serai"
+- "Tumis bumbu halus, yg di iris, batang serai &amp; daun2 kecuali daun kemangi yaa 😊 Tambahkan garam &amp; gula"
+- "Masukkan ayam, masak sampai mendidih, masukkan kentang &amp; tahu goreng. Tambahkan sedikit air &amp; kaldu bubuk"
+- "Masak sampai air menyusut/hampir kering, koreksi rasa, 2 menit sebelum api dimatikan masukkan daun kemangi. Sajikan dengan nasi hangat, selamat menikmati 😊"
+categories:
+- Resep
+tags:
+- ayam
+- woku
+- kering
+
+katakunci: ayam woku kering 
+nutrition: 290 calories
+recipecuisine: Indonesian
+preptime: "PT26M"
+cooktime: "PT44M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Ayam Woku Kering Khas Manado](https://img-global.cpcdn.com/recipes/d10ea6fa0e4e5d58/751x532cq70/ayam-woku-kering-khas-manado-foto-resep-utama.jpg)
+
+Sedang mencari ide resep ayam woku kering khas manado yang unik? Cara menyiapkannya memang tidak susah dan tidak juga mudah. Jika keliru mengolah maka hasilnya akan hambar dan justru cenderung tidak enak. Padahal ayam woku kering khas manado yang enak selayaknya punya aroma dan cita rasa yang mampu memancing selera kita.
+
+
+
+Ada beberapa hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari ayam woku kering khas manado, pertama dari jenis bahan, lalu pemilihan bahan segar sampai cara membuat dan menyajikannya. Tidak usah pusing jika hendak menyiapkan ayam woku kering khas manado enak di mana pun anda berada, karena asal sudah tahu triknya maka hidangan ini dapat menjadi suguhan istimewa.
+
+
+Di bawah ini ada beberapa cara mudah dan praktis untuk membuat ayam woku kering khas manado yang siap dikreasikan. Anda dapat membuat Ayam Woku Kering Khas Manado menggunakan 19 bahan dan 5 tahap pembuatan. Berikut ini cara untuk membuat hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang dibutuhkan untuk pembuatan Ayam Woku Kering Khas Manado:
+
+1. Ambil 1/2 kg Ayam
+1. Sediakan 8 buah Kentang uk.kecil
+1. Sediakan 5 potong Tahu
+1. Siapkan 5 siung Bawang putih
+1. Siapkan 10 Bawang merah
+1. Siapkan 35 buah cabe (sesuai selera)
+1. Gunakan 4 buah kemiri
+1. Sediakan 1 ruas jahe
+1. Gunakan 2 ruas kunyit
+1. Gunakan 3 buah tomat
+1. Siapkan 3 batang serai
+1. Sediakan 1 lembar daun pandan
+1. Gunakan 5 lembar daun jeruk
+1. Siapkan 1/4 lembar daun kunyit
+1. Gunakan Secukupnya daun kemangi
+1. Gunakan Secukupnya garam
+1. Sediakan 1 sdt kaldu bubuk (sya : royco ayam)
+1. Sediakan Sedikit gula
+1. Siapkan Sedikit air -+ 100ml
+
+
+
+
+<!--inarticleads2-->
+
+##### Cara menyiapkan Ayam Woku Kering Khas Manado:
+
+1. Potong ayam sesuai selera (sya rebus sedikit -+ 10menit), kentang &amp; tahu potong sesuai selera kemudian goreng.
+1. Haluskan bawang merah (sisakan 2siung utk di iris), bawang putih, cabe, jahe, kunyit, kemiri. Iris bawang merah &amp; tomat, bersihkan &amp; geprek serai
+1. Tumis bumbu halus, yg di iris, batang serai &amp; daun2 kecuali daun kemangi yaa 😊 Tambahkan garam &amp; gula
+1. Masukkan ayam, masak sampai mendidih, masukkan kentang &amp; tahu goreng. Tambahkan sedikit air &amp; kaldu bubuk
+1. Masak sampai air menyusut/hampir kering, koreksi rasa, 2 menit sebelum api dimatikan masukkan daun kemangi. Sajikan dengan nasi hangat, selamat menikmati 😊
+
+
+
+
+Terima kasih telah membaca resep yang kami tampilkan di sini. Harapan kami, olahan Ayam Woku Kering Khas Manado yang mudah di atas dapat membantu Anda menyiapkan makanan yang menarik untuk keluarga/teman maupun menjadi ide untuk berjualan makanan. Semoga bermanfaat dan selamat mencoba!
